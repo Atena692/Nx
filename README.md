@@ -1,2 +1,2 @@
 # NX 
-## Hoting for the NX files, enjoy skids!
+## Hosting for the NX files, enjoy skids!
